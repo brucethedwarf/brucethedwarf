@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @brucethedwarf
+- 👀 I’m interested in Games and  Music
+- 🌱 I’m currently learning Programming/HTML
+- 📫 How to reach me at argoose07@gmail.cm
+- 😄 Pronouns: Him
+- ⚡ Fun fact: Built like a beach ball
